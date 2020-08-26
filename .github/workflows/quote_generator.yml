@@ -1,0 +1,26 @@
+name: quote_generator
+
+on:
+  workflow_dispatch:
+  schedule:
+  - cron: "0 0 * * *"
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+
+    steps:
+    - uses: actions/checkout@v2
+    - uses: actions/setup-node@v1
+      with:
+        node-version: 12.16.1
+    - run: npm ci
+    - name: Generate quote
+      run: npm run generate
+    - name: Update README.md
+      run: |
+        git config --global user.email "hoangnn93@gmail.com"
+        git config --global user.name "codeaholicguy"
+        git add .
+        git commit -m "Updated README.md"
+        git push

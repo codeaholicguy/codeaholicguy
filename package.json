@@ -1,0 +1,11 @@
+{
+  "name": "codeaholicguy",
+  "version": "1.0.0",
+  "main": "index.js",
+  "scripts": {
+    "generate": "node index.js"
+  },
+  "dependencies": {
+    "axios": "^0.20.0"
+  }
+}
