@@ -1,3 +1,3 @@
-_**Ideas don't get smaller when they're shared, they get bigger.**_
+_**All courses of action are risky, so prudence is not in avoiding danger (it's impossible), but calculating risk and acting decisively. Make mistakes of ambition and not mistakes of sloth. Develop the strength to do bold things, not the strength to suffer.**_
 
-Seth Godin
+Niccolo Machiavelli
