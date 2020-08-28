@@ -1,3 +1,3 @@
-_**All courses of action are risky, so prudence is not in avoiding danger (it's impossible), but calculating risk and acting decisively. Make mistakes of ambition and not mistakes of sloth. Develop the strength to do bold things, not the strength to suffer.**_
+_**I keep asking myself these three questions ... What do you have? What do you want? What will you give up?**_
 
-Niccolo Machiavelli
+Jack Ma
