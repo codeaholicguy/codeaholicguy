@@ -1,3 +1,3 @@
-_**Time to improve is limited. The clock is always on and doesn't care if you don't feel like it. Someone else does and they're passing you by.**_
+_**The beginning of freedom is the realization that you are not the possessing entity the thinker.**_
 
-William James Moore
+Eckhart Tolle
