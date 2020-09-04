@@ -1,3 +1,3 @@
-_**Fear kills more dreams than failure ever will.**_
+_**If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not.**_
 
-Dale Patridge
+Elon Musk
