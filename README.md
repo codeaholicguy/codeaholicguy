@@ -1,3 +1,3 @@
-_**If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not.**_
+_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
 
-Elon Musk
+Lorii Myers
