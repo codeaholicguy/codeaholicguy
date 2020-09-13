@@ -1,3 +1,3 @@
-_**Think ahead. Don't let day-to-day operations drive out planning.**_
+_**Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.**_
 
-Donald Rumsfeld
+Veronica A. Shoffstall
