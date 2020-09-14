@@ -1,3 +1,3 @@
-_**Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.**_
+_**A quitter never wins and a winner never quits**_
 
-Veronica A. Shoffstall
+Napoleon Hill
