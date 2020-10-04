@@ -1,3 +1,3 @@
-_**Do not wait to strike till the iron is hot; but make it hot by striking....**_
+_**Core passions and aspirations should be consistent and in sync.**_
 
-William B. Sprague
+Lorii Myers
