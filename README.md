@@ -1,3 +1,3 @@
-_**Hang Out with People Who are Better than You.**_
+_**When it comes to winning, you need the skill and the will.**_
 
-Warren Buffett
+Frank Tyger
