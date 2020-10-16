@@ -1,3 +1,3 @@
-_**When it comes to winning, you need the skill and the will.**_
+_**Things are not bad in themselves, but our cowardice makes them so.**_
 
-Frank Tyger
+Michel de Montaigne
