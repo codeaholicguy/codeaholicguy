@@ -1,3 +1,3 @@
-_**Things are not bad in themselves, but our cowardice makes them so.**_
+_**There's such a thin line between winning and losing.**_
 
-Michel de Montaigne
+John R. Tunis
