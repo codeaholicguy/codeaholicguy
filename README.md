@@ -1,6 +1,3 @@
-_**One does not accumulate but eliminate .
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.**_
+_**You defeated me But you won't defeat me again Because you have grown all you can grow.... but I am still growing (about Mount Everest).**_
 
-Bruce Lee
+Edmund Hillary
