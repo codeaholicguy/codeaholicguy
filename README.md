@@ -1,3 +1,3 @@
-_**Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.**_
+_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
 
-Charles F. Kettering
+Jean Shinoda Bolen
