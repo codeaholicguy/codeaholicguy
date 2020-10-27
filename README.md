@@ -1,3 +1,3 @@
-_**Keep a positive mind. Remember, a failed attempt doesn't make you a failure—giving up does.**_
+_**If you cannot do great things, do small things in a great way.**_
 
-Lorii Myers
+Napoleon Hill
