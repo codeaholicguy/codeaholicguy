@@ -1,3 +1,3 @@
-_**Don't be tempted to break momentum—work through it.**_
+_**Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.**_
 
-Lorii Myers
+Zaha Hadid
