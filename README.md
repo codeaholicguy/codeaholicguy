@@ -1,3 +1,3 @@
-_**Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.**_
+_**Remember that you are very special,no one can play your role better than you.**_
 
-Zaha Hadid
+Damayanti Patra
