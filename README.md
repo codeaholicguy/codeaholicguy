@@ -1,3 +1,3 @@
-_**The journey of a thousand miles begins with one step.**_
+_**If you like what you do, and you’re lucky enough to be good at it, do it for that reason.**_
 
-Lao Tzu
+Phil Grimshaw
