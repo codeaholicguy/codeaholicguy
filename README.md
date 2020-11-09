@@ -1,3 +1,3 @@
-_**If we ever stop thinking about the person we want to become, we stop learning and taking risks.**_
+_**Things are not bad in themselves, but our cowardice makes them so.**_
 
-Sally Blount
+Michel de Montaigne
