@@ -1,3 +1,3 @@
-_**Don't be afraid of losing, be afraid of playing a game and not learning something.**_
+_**If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not.**_
 
-Dan Heisman
+Elon Musk
