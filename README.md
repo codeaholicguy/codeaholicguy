@@ -1,3 +1,3 @@
-_**If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not.**_
+_**The last time doesn't exist. It's only this time. And everything is going to be different this time. There's only now.**_
 
-Elon Musk
+Bill Murray
