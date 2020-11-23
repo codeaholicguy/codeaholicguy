@@ -1,3 +1,3 @@
-_**The man who has confidence in himself gains the confidence of others.**_
+_**We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light**_
 
-Hasidic Proverb
+Mary Dunbar
