@@ -1,3 +1,3 @@
-_**We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light**_
+_**You defeated me But you won't defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).**_
 
-Mary Dunbar
+Edmund Hillary
