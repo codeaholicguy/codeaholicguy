@@ -1,3 +1,3 @@
-_**Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.**_
+_**Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.**_
 
-Lorii Myers
+Veronica A. Shoffstall
