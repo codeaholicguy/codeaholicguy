@@ -1,3 +1,3 @@
-_**The best way to predict the future is to create it.**_
+_**A successful man is one who can lay a firm foundation with the bricks that others throw at him.**_
 
-Abraham Lincoln
+Sidney Greenberg
