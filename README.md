@@ -1,3 +1,3 @@
-_**A successful man is one who can lay a firm foundation with the bricks that others throw at him.**_
+_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
 
-Sidney Greenberg
+Lorii Myers
