@@ -1,3 +1,3 @@
-_**What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!**_
+_**Stop complaining. Start creating.**_
 
-Larry Page
+Dale Patridge
