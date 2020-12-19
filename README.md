@@ -1,3 +1,3 @@
-_**Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.**_
+_**Do not worry if you have built your castles in the air. They are where they should be. Now put the foundations under them.**_
 
-Lorii Myers
+Henry David Thoreau
