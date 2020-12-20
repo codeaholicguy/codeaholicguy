@@ -1,3 +1,3 @@
-_**Do not worry if you have built your castles in the air. They are where they should be. Now put the foundations under them.**_
+_**Man needs his difficulties because they are necessary to enjoy success.**_
 
-Henry David Thoreau
+A. P. J. Abdul Kalam
