@@ -1,3 +1,3 @@
-_**If you cannot do great things, do small things in a great way.**_
+_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
 
-Napoleon Hill
+Christiane Northrup
