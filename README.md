@@ -1,3 +1,3 @@
-_**You must have a positive self perception in order to transcend anything.**_
+_**I know for sure that what we dwell on is who we become.**_
 
-Steve Maraboli
+Oprah Winfrey
