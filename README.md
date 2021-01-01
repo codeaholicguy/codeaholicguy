@@ -1,3 +1,3 @@
-_**I know for sure that what we dwell on is who we become.**_
+_**Stop complaining. Start creating.**_
 
-Oprah Winfrey
+Dale Patridge
