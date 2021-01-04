@@ -1,3 +1,3 @@
-_**Core passions and aspirations should be consistent and in sync.**_
+_**Do not be afraid to give up the good for the great.**_
 
-Lorii Myers
+Kenny Rogers
