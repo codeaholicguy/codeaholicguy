@@ -1,3 +1,3 @@
-_**Those who know how to win are much more numerous than those who know how to make proper use of their victories**_
+_**You make a living by what you earn; you make a life by what you give.**_
 
-Polybius
+Winston Churchill
