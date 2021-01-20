@@ -1,3 +1,3 @@
-_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
+_**The man who removes a mountain begins by carrying away small stones..**_
 
-Christiane Northrup
+Chinese Proverb
