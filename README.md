@@ -1,3 +1,3 @@
-_**The man who removes a mountain begins by carrying away small stones..**_
+_**There's such a thin line between winning and losing.**_
 
-Chinese Proverb
+John R. Tunis
