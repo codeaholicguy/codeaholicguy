@@ -1,3 +1,3 @@
-_**Think ahead. Don't let day-to-day operations drive out planning.**_
+_**Positive anything is better than negative thinking.**_
 
-Donald Rumsfeld
+Elbert Hubbard
