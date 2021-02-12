@@ -1,3 +1,3 @@
-_**Go confidently in the direction of your dreams. Live the life you've imagined. As you simplify your life, the laws of the universe will be simpler.**_
+_**You should never view your challenges as a disadvantage. Instead, it's important for you to understand that your experience facing and overcoming adversity is actually one of your biggest advantages.**_
 
-Henry David Thoreau
+Michelle Obama
