@@ -1,3 +1,3 @@
-_**Don't be tempted to break momentum-work through it.**_
+_**The determination to win is the better part of winning.**_
 
-Lorii Myers
+Daisaku Ikeda
