@@ -1,3 +1,3 @@
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.**_
 
-Honore de Balzac
+Steve Maraboli
