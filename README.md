@@ -1,3 +1,3 @@
-_**If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.**_
+_**Limitations are like mirages created by your own mind. When you realise that limitation do not exist, those around you will also feel it and allow you inside their space.**_
 
-Steve Maraboli
+Stephen Richards
