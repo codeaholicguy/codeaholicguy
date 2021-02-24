@@ -1,3 +1,3 @@
-_**People who are crazy enough to think they can change the world, are the ones who do.**_
+_**Once your excuses are gone, you will simply have to settle for being awesome!**_
 
-Apple Computers
+Lorii Myers
