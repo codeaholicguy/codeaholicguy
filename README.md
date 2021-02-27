@@ -1,3 +1,3 @@
-_**Failure is the condiment that gives success its flavor.**_
+_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
 
-Truman Capote
+Jack Ma
