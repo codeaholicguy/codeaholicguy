@@ -1,3 +1,3 @@
-_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
+_**Excellence prospers in the absence of excuses.**_
 
-Jack Ma
+Lorii Myers
