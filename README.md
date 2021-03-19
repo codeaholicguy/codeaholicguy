@@ -1,3 +1,3 @@
-_**A quitter never wins and a winner never quits**_
+_**There is nothing noble about being superior to some other man. The true nobility is in being superior to your previous self.**_
 
-Napoleon Hill
+Hindu Proverb
