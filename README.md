@@ -1,3 +1,3 @@
-_**Sustenance! Your health is always the best prescription.**_
+_**Let go of who you think you're supposed to be; embrace who you are.**_
 
-Lorii Myers
+Brene Brown
