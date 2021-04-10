@@ -1,3 +1,3 @@
-_**Stop complaining. Start creating.**_
+_**Winning is not everything, but the effort to win is.**_
 
-Dale Patridge
+Zig Ziglar
