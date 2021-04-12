@@ -1,3 +1,3 @@
-_**You defeated me But you won't defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).**_
+_**We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.**_
 
-Edmund Hillary
+Sheryl Sandberg
