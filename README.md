@@ -1,3 +1,3 @@
-_**Remove the temptation to settle for anything short of what you deserve.**_
+_**Many a false step was made by standing still.**_
 
-Lorii Myers
+Fortune Cookie
