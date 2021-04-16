@@ -1,3 +1,3 @@
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**Core passions and aspirations should be consistent and in sync.**_
 
-Honore de Balzac
+Lorii Myers
