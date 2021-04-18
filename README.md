@@ -1,3 +1,3 @@
-_**Persistence is very important. You should not give up unless you are forced to give up.**_
+_**Perfection is not attainable, but if we chase perfection we can catch excellence..**_
 
-Elon Musk
+Vince Lombardi
