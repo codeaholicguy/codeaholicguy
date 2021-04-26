@@ -1,3 +1,3 @@
-_**Named must your fear be before banish it you can.**_
+_**The best way to predict the future is to create it.**_
 
-Yoda
+Abraham Lincoln
