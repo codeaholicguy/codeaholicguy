@@ -1,3 +1,3 @@
-_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
+_**The determination to win is the better part of winning.**_
 
-Greg Child
+Daisaku Ikeda
