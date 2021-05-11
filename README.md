@@ -1,3 +1,3 @@
-_**If you don't give up, you still have a chance. And when you are small, you have to be very focused and rely on your brain, not your strength.**_
+_**Stop creating a life that you need a vacation from. Instead move to where you want to live, do what you want to do, start what you want to start and create the life you want today. This isn't rehearsal people. This is YOUR life.**_
 
-Jack Ma
+Dale Patridge
