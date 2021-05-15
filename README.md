@@ -1,3 +1,3 @@
-_**Do not let what you cannot do interfere with what you can do.**_
+_**I am an optimist. It does not seem too much use being anything else..**_
 
-John Wooden
+Winston Churchill
