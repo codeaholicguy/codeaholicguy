@@ -1,3 +1,3 @@
-_**I am an optimist. It does not seem too much use being anything else..**_
+_**If I work as hard as I can, I wonder how much I can do in a day?**_
 
-Winston Churchill
+Ezra Taft Benson
