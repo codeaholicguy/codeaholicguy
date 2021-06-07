@@ -1,3 +1,3 @@
-_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
+_**Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.**_
 
-Greg Child
+Charles F. Kettering
