@@ -1,3 +1,3 @@
-_**Great things are done by a series of small things brought together.**_
+_**You should never view your challenges as a disadvantage. Instead, it's important for you to understand that your experience facing and overcoming adversity is actually one of your biggest advantages.**_
 
-Vincent Van Gogh
+Michelle Obama
