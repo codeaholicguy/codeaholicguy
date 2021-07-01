@@ -1,3 +1,3 @@
-_**Stop complaining. Start creating.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 
-Dale Patridge
+Japanese Proverb
