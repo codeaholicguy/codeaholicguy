@@ -1,3 +1,3 @@
-_**Vulnerability is not winning or losing; it's having the courage to show up and be seen when we have no control over the outcome.**_
+_**Logic will get you from A to B. Imagination will take you everywhere.**_
 
-Brene Brown
+Albert Einstein
