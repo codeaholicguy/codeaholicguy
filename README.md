@@ -1,3 +1,3 @@
-_**Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.**_
+_**People who are crazy enough to think they can change the world, are the ones who do.**_
 
-Charles F. Kettering
+Apple Computers
