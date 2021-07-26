@@ -1,3 +1,3 @@
-_**Winning isn't everything.. It's the only thing.**_
+_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
 
-Vincent van Gogh
+Ray Kroc
