@@ -1,3 +1,3 @@
-_**If you want to make your dreams come true, the first thing you have to do is wake up.**_
+_**If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.**_
 
-J.M. Power
+Steve Maraboli
