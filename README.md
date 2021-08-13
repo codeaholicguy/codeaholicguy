@@ -1,3 +1,3 @@
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**Stress is like a pulse, if you have it you are alive.**_
 
-Honore de Balzac
+Steve Maraboli
