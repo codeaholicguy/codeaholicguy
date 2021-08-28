@@ -1,3 +1,3 @@
-_**Vulnerability is not winning or losing; it's having the courage to show up and be seen when we have no control over the outcome.**_
+_**We don't have to do all of it alone. We were never meant to.**_
 
 Brene Brown
