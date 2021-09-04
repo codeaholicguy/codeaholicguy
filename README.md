@@ -1,3 +1,3 @@
-_**When you win, say nothing. When you lose, say less.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 
-Paul Brown
+Japanese Proverb
