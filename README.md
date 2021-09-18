@@ -1,3 +1,3 @@
-_**If you don't have confidence, you'll always find a way not to win**_
+_**If you want to test your memory, try to recall what you were worrying about one year ago today.**_
 
-Carl Lewis
+E. Joseph Cossman
