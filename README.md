@@ -1,3 +1,3 @@
-_**Effort only fully releases its reward after a person refuses to quit.**_
+_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
 
-Napoleon Hill
+Jean Shinoda Bolen
