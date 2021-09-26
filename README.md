@@ -1,3 +1,3 @@
-_**There's such a thin line between winning and losing.**_
+_**Stop complaining. Start creating.**_
 
-John R. Tunis
+Dale Patridge
