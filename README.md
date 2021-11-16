@@ -1,3 +1,3 @@
-_**Winning isn't everything.. It's the only thing.**_
+_**People who are crazy enough to think they can change the world, are the ones who do.**_
 
-Vincent van Gogh
+Apple Computers
