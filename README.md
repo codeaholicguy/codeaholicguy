@@ -1,3 +1,3 @@
-_**People who are crazy enough to think they can change the world, are the ones who do.**_
+_**If you want to test your memory, try to recall what you were worrying about one year ago today.**_
 
-Apple Computers
+E. Joseph Cossman
