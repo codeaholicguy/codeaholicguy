@@ -1,3 +1,3 @@
-_**We don't have to do all of it alone. We were never meant to.**_
+_**If we ever stop thinking about the person we want to become, we stop learning and taking risks.**_
 
-Brene Brown
+Sally Blount
