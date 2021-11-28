@@ -1,3 +1,3 @@
-_**If I work as hard as I can, I wonder how much I can do in a day?**_
+_**At that point where you have decided to upgrade from aspiration to expectation and have begun to visualize an outcome, something incredibly important has happened, you have committed to the process of change.**_
 
-Ezra Taft Benson
+Lorii Myers
