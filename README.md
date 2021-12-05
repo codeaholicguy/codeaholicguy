@@ -1,3 +1,3 @@
-_**Perfection is not attainable, but if we chase perfection we can catch excellence..**_
+_**People who are crazy enough to think they can change the world, are the ones who do.**_
 
-Vince Lombardi
+Apple Computers
