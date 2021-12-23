@@ -1,3 +1,3 @@
-_**The journey of a thousand miles begins with one step.**_
+_**A quitter never wins and a winner never quits**_
 
-Lao Tzu
+Napoleon Hill
