@@ -1,3 +1,3 @@
-_**Your life does not get better by chance. It gets better by change.**_
+_**Stop complaining. Start creating.**_
 
-Jim Rohn
+Dale Patridge
