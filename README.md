@@ -1,3 +1,3 @@
-_**Stop complaining. Start creating.**_
+_**Our words are buttressed by our deeds, and our deeds are inspired by our convictions.**_
 
-Dale Patridge
+Theodore Hesburgh
