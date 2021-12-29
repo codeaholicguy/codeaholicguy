@@ -1,3 +1,3 @@
-_**Our words are buttressed by our deeds, and our deeds are inspired by our convictions.**_
+_**Named must your fear be before banish it you can.**_
 
-Theodore Hesburgh
+Yoda
