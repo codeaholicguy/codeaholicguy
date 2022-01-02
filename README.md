@@ -1,3 +1,3 @@
-_**You are very powerful, provided you know how powerful you are.**_
+_**Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.**_
 
-Yogi Bhajan
+Charles F. Kettering
