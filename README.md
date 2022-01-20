@@ -1,3 +1,3 @@
-_**The free soul is rare, but you know it when you see it - basically because you feel good, very good, when you are near or with them.**_
+_**If you're not making mistakes, you're not taking risks, and that means you're not going anywhere. The key is to make mistakes faster than the competition, so you have more changes to learn and win.**_
 
-Charles Bukowski
+John W. Holt, Jr.
