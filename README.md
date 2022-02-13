@@ -1,3 +1,3 @@
-_**Not every day is going to offer us a chance to save somebody's life, but every day offers us an opportunity to affect one.**_
+_**The last time doesn't exist. It's only this time. And everything is going to be different this time. There's only now.**_
 
-Mark Bezos
+Bill Murray
