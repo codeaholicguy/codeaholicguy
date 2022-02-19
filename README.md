@@ -1,3 +1,3 @@
-_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
+_**Excellence prospers in the absence of excuses.**_
 
-Phil Grimshaw
+Lorii Myers
