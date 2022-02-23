@@ -1,3 +1,3 @@
-_**If you're changing the world, you're working on important things. You're excited to get up in the morning.**_
+_**If you don't have confidence, you'll always find a way not to win**_
 
-Larry Page
+Carl Lewis
