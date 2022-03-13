@@ -1,3 +1,3 @@
-_**Great things are done by a series of small things brought together.**_
+_**If you cannot do great things, do small things in a great way.**_
 
-Vincent Van Gogh
+Napoleon Hill
