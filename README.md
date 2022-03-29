@@ -1,3 +1,3 @@
-_**He who is not courageous enough to take risks will accomplish nothing in life.**_
+_**The determination to win is the better part of winning.**_
 
-Mohamad Ali
+Daisaku Ikeda
