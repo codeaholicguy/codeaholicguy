@@ -1,3 +1,3 @@
-_**Think in terms of opportunities and solutions instead of problems, disappointment, and failure.**_
+_**Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.**_
 
-Lorii Myers
+Isaac Lidsky
