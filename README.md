@@ -1,3 +1,3 @@
-_**Stop creating a life that you need a vacation from. Instead move to where you want to live, do what you want to do, start what you want to start and create the life you want today. This isn't rehearsal people. This is YOUR life.**_
+_**Limitations are like mirages created by your own mind. When you realise that limitation do not exist, those around you will also feel it and allow you inside their space.**_
 
-Dale Patridge
+Stephen Richards
