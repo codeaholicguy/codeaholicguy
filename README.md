@@ -1,3 +1,3 @@
-_**Vision without action is daydream. Action without vision is nightmare..**_
+_**The real opportunity for success lies within the person and not in the job.**_
 
-Japanese Proverb
+Zig Ziglar
