@@ -1,3 +1,3 @@
-_**When I was a little kid, I was really scared of the dark. But then I came to understand, dark just means the absence of photons in the visible wavelength 400 to 700 nanometers. Then I thought, well it's really silly to be afraid of a lack of photons. Then I wasn't afraid of the dark anymore after that.**_
+_**I wanted to achieve something essential in life, something that is not measured by money or position in society. The mountains are not stadiums where I satisfy my ambitions to achieve. They are my cathedrals, the houses of my religion. In the mountains I attempt to understand my life. They are the way I practice my religion. In the mountains I celebrate creation, on each journey I am reborn.**_
 
-Elon Musk
+Anatoli Boukreev
