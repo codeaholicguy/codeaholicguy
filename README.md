@@ -1,3 +1,3 @@
-_**If you don't have confidence, you'll always find a way not to win**_
+_**We don't have to do all of it alone. We were never meant to.**_
 
-Carl Lewis
+Brene Brown
