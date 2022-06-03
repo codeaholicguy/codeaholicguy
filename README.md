@@ -1,3 +1,3 @@
-_**We lose ourselves in the things we love. We find ourselves there, too.**_
+_**Don't be tempted to break momentum-work through it.**_
 
-Dale Patridge
+Lorii Myers
