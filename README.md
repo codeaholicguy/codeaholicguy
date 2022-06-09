@@ -1,3 +1,3 @@
-_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
+_**Not every day is going to offer us a chance to save somebody's life, but every day offers us an opportunity to affect one.**_
 
-Phil Grimshaw
+Mark Bezos
