@@ -1,3 +1,3 @@
-_**A loser doesn't know what he'll do if he loses, but talks about what he'll do if he wins, and a winner doesn't talk about what he'll do if he wins, but knows what he'll do if he loses.**_
+_**Sustenance! Your health is always the best prescription.**_
 
-null
+Lorii Myers
