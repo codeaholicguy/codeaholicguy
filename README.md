@@ -1,3 +1,3 @@
-_**What you do speaks so loudly that I cannot hear what you say.**_
+_**You will never win if you never begin.**_
 
-Ralph Waldo Emerson
+Helen Rowland
