@@ -1,3 +1,3 @@
-_**Some men see things as they are and say why.. I dream things that never were and say why not.**_
+_**You must be the change you want to see in the world..**_
 
-George Bernard Shaw
+M.K. Gandhi
