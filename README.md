@@ -1,3 +1,3 @@
-_**I know for sure that what we dwell on is who we become.**_
+_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
 
-Oprah Winfrey
+Mohamad Ali
