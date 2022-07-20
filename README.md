@@ -1,3 +1,3 @@
-_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
+_**Never waste your time trying to explain who you are to people who are committed to misunderstanding you.**_
 
-Mohamad Ali
+Dream Hampton
