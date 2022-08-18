@@ -1,3 +1,3 @@
-_**Do the best you can until you know better. Then when you know better, do better.**_
+_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
 
-Maya Angelou
+Greg Child
