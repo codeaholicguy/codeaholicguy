@@ -1,3 +1,3 @@
-_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
+_**I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better. I think that's the single best piece of advice: constantly think about how you could be doing things better and questioning yourself.**_
 
-Greg Child
+Elon Musk
