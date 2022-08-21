@@ -1,3 +1,3 @@
-_**Perfection is not attainable, but if we chase perfection we can catch excellence..**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 
-Vince Lombardi
+Arnold Horshak
