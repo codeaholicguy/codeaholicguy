@@ -1,3 +1,3 @@
-_**Winning is nice if you don't lose your integrity in the process.**_
+_**An aspirational diet will have you dreaming of success; but it's the attachment of expectations and tangible goals that feeds the desire, persistence, and fortitude required to make the win.**_
 
-Arnold Horshak
+Lorii Myers
