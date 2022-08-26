@@ -1,3 +1,3 @@
-_**You make a living by what you earn; you make a life by what you give.**_
+_**The man who removes a mountain begins by carrying away small stones..**_
 
-Winston Churchill
+Chinese Proverb
