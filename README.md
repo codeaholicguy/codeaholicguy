@@ -1,3 +1,3 @@
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**Stop complaining. Start creating.**_
 
-Ray Kroc
+Dale Patridge
