@@ -1,3 +1,3 @@
-_**I know for sure that what we dwell on is who we become.**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 
-Oprah Winfrey
+Honore de Balzac
