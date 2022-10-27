@@ -1,3 +1,3 @@
-_**What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!**_
+_**If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not.**_
 
-Larry Page
+Elon Musk
