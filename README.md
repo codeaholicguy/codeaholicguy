@@ -1,3 +1,3 @@
-_**A show of confidence raises the bar**_
+_**Stress is like a pulse, if you have it you are alive.**_
 
-Lorii Myers
+Steve Maraboli
