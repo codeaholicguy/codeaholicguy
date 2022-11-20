@@ -1,3 +1,3 @@
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**If you don't have confidence, you'll always find a way not to win**_
 
-Honore de Balzac
+Carl Lewis
