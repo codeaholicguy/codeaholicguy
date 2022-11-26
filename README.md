@@ -1,3 +1,3 @@
-_**Do the best you can until you know better. Then when you know better, do better.**_
+_**From now on we live in a world where man has walked on the Moon. It's not a miracle; we just decided to go.**_
 
-Maya Angelou
+Tom Hanks
