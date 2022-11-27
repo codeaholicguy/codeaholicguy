@@ -1,3 +1,3 @@
-_**From now on we live in a world where man has walked on the Moon. It's not a miracle; we just decided to go.**_
+_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
 
-Tom Hanks
+Jean Shinoda Bolen
