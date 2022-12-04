@@ -1,3 +1,3 @@
-_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
+_**You will never win if you never begin.**_
 
-Jean Shinoda Bolen
+Helen Rowland
