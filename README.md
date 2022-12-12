@@ -1,3 +1,3 @@
-_**Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.**_
+_**Don't use all-or-nothing thinking. Take each day as its own day, and don't worry about it if you mess up one day. The most important thing you can do is just get back up on the horse.**_
 
-Mohamad Ali
+Henry Cloud
