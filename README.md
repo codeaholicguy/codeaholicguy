@@ -1,3 +1,3 @@
-_**Where there is ruin, there is hope for a treasure.**_
+_**Win any way as long as you can get away with it. Nice guys finish last.**_
 
-Rumi
+Leo Durocher
