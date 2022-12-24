@@ -1,3 +1,3 @@
-_**Whether you think you can or think you can't, you're right..**_
+_**Find a purpose in life so big it will challenge every capacity to be at your best.**_
 
-Henry Ford
+David O. McKay
