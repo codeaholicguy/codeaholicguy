@@ -1,3 +1,3 @@
-_**He who is not courageous enough to take risks will accomplish nothing in life.**_
+_**If I work as hard as I can, I wonder how much I can do in a day?**_
 
-Mohamad Ali
+Ezra Taft Benson
