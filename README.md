@@ -1,3 +1,3 @@
-_**A man who has no imagination has no wings.**_
+_**The journey of a thousand miles begins with one step.**_
 
-Mohamad Ali
+Lao Tzu
