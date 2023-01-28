@@ -1,3 +1,3 @@
-_**I am an optimist. It does not seem too much use being anything else..**_
+_**Stop complaining. Start creating.**_
 
-Winston Churchill
+Dale Patridge
