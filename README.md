@@ -1,3 +1,3 @@
-_**Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.**_
+_**Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.**_
 
-Isaac Lidsky
+Lorii Myers
