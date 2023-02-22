@@ -1,3 +1,3 @@
-_**Stop complaining. Start creating.**_
+_**If you cannot do great things, do small things in a great way.**_
 
-Dale Patridge
+Napoleon Hill
