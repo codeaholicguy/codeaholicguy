@@ -1,3 +1,3 @@
-_**It isn't what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.**_
+_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
 
-Dale Carnegie
+Lorii Myers
