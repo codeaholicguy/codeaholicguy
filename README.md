@@ -1,3 +1,3 @@
-_**Don't be afraid of losing, be afraid of playing a game and not learning something.**_
+_**Vulnerability is not winning or losing; it's having the courage to show up and be seen when we have no control over the outcome.**_
 
-Dan Heisman
+Brene Brown
